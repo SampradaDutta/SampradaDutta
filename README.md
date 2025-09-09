@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Samprada Dutta
 **A passionate AIML Engineer || Web developer || Team Phoenix member from India**
 
-Email Me 👉 ✉️ **gourabrik2005@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **sampradadutta242@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:* AI automation*
 - 🌱 **I’m currently learning:* B.Tech CSE AIML in Brainware University*
